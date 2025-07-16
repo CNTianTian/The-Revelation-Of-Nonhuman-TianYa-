@@ -1,4 +1,4 @@
-# 佩伭 异人启示录
+# 佩伭 异人启示录 The Revelation of Nonhuman
 
 ## Description
 
